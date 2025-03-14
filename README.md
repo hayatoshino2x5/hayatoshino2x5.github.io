@@ -1,1 +1,0 @@
-# hayatoshino2x5.github.io
